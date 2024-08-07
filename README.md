@@ -1,16 +1,14 @@
-## Hi there 👋
-
-<!--
-**marialuizamores/marialuizamores** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## Hi there 👋 meu nome é Maria
+- eu amo cozinhar bolos e comidas para pessoas que amo e para mim também.
+- meu gosto musical é basicamente apenas sertanejo universsitário e meu cantor favorito é o luan santana, 
+- minhas cores favoritas sao rosa e roxo. 
+- adoro cuidar do meu cabelo as vezes quero corta e mete o louco mas ne tenho paciencia ainda, 
+- começei a cuidar das minhaas unhas e parei de roe-las 
+- tenho 15 anos faço aniversario u m dia apos o natal
+- estou namorando um menino que nunca imaginei nem que seriamos amigos
+- minha sogra é incrivel
+- ganhei umn buque de girrasol lindoo
+- meu insta é @maria_luizamores
+- perdi meu pai a um mes atras
+- tenho 3 sobrinhos maravilhosos
+- minha irmanzinha nasce sexta
